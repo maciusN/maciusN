@@ -25,7 +25,7 @@
 ---
 
 ### 📫 Get in Touch:
-- 💼 LinkedIn: [Your LinkedIn](https://www.linkedin.com/in/maciej-nogaj-06539527b/)
+- 💼 LinkedIn: [Mochis LinkedIn](https://www.linkedin.com/in/maciej-nogaj-06539527b/)
 
 ---
 

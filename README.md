@@ -1,4 +1,5 @@
-## Hi there 👋
+![me_coding](https://github.com/user-attachments/assets/43948b37-5b0d-4762-953d-ccfbb18c46d0)
+
 
 <!--
 **maciusN/maciusN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
